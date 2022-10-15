@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **mishraab@usc.edu**
 
-- 📄 Know about my experiences [ Resume &#128279;](https://drive.google.com/file/d/19lIa6nEhfjcpToEPhBvthWSNIEmVrNVe/view?usp=sharing)
+- 📄 Know about my experiences [ Resume &#128279;](https://drive.google.com/file/d/1IThwprzx0E34QOF0t1U7JldZZLTk2Gwl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
